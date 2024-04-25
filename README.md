@@ -1,0 +1,1 @@
+# Lean-Platform-Technologies-assessment
